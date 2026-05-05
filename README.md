@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?font=Courier&size=24&duration=4000&pause=2000&color=777777&center=true&vCenter=true&width=800&lines=Play+with+shadows+and+you+might+lose+the+light" />
+  <img src="https://readme-typing-svg.herokuapp.com?font=Courier&size=24&duration=4000&pause=2000&color=777777&center=true&vCenter=true&width=800&lines=Play+with+me+and+you+might+lose+the+light" />
 </p>
 
 <p align="center">
