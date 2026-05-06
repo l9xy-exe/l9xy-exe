@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img src="https://miro.medium.com/v2/resize:fit:1100/format:webp/1*qF59e1WeH4xpbxY6npUAlg.png" width="1000">
+  <img src="https://drift.rip/media/users/backgrounds/background_1074_68702a35e24925.96632279.gif" width="1000">
 </p>
 ⛧
 <p align="left">
