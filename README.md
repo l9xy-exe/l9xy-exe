@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1235744013236043888/1252407226052644956/image11.gif?ex=69fbd11f&is=69fa7f9f&hm=9aa1e28b5556eb31e7d9d39db8eef678fe3e43b6abf6968dbdd3dd03a6d2df12" width="1000">
+  <img src="https://cdn.discordapp.com/attachments/1194477816448831609/1194478203704721519/banners_pinterest_1149403136128320908.jpg?ex=69fc0284&is=69fab104&hm=8806c9d306c0c7056eea4c3a9aa3fc8b408f8ffaa4371b0472892126a056c480" width="1000">
 </p>
 ⛧
 <p align="left">
