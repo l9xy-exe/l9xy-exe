@@ -40,7 +40,7 @@
   <img src="https://github-readme-activity-graph.vercel.app/graph?username=l9xy-exe&theme=github-compact&hide_border=true">
 </p>
 
-笑̶顔̶を̶す̶べ̶て̶信̶じ̶る̶な̶、̶だ̶が̶す̶べ̶て̶の̶教̶訓̶を̶受̶け̶取̶れ̶。
+を̶す̶べ̶て̶信̶じ̶る̶な̶、̶だ̶が̶す̶べ̶て̶の̶教̶訓̶を̶受̶け̶取̶れ̶。
 !
 ---
 
